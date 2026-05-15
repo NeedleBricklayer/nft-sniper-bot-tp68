@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with premium nft sniper bot | volume-analysis + trait-analysis, the #1 nft sniper bot. Includes volume-analysis and trait-analysis for a faster and more
 
 
 
